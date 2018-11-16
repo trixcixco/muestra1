@@ -1,3 +1,3 @@
-# Muestra 1
+# Fotografía
 
 https://trixcixco.github.io/muestra1/
